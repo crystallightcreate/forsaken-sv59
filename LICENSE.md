@@ -1,4 +1,4 @@
-# 
+# automatic Script for forsaken is the best forsaken Script, featuring one-hit kill and undetectable. Safe and powerful for all your needs.
 
 
 
